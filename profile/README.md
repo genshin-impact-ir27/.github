@@ -1,4 +1,4 @@
-
+# where find Genshin Impact scripts 2026. Our optimized Genshin Impact scripts are fully tested and ready for use.
 
 
 
